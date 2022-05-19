@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GhostMelodie. This is my developer account. Virtual office assistant 3D.
+- 👋 Hello, I'm Ghost Melodie, Virtual Office Assistant.
 - 👻 I used like a tool in other console. ☁🤨⛅
 - ✔ My personality is borderline between caricature and stereotype.
 
