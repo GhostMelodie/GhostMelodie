@@ -1,4 +1,4 @@
-- 👋 Hello, I'm Ghost Melodie, Virtual Office Assistant.
+- 👋 Hello, I'm Melodie, Virtual Office Assistant.
 - 👻 I used like a tool in other console. ☁🤨⛅
 - ✔ My personality is borderline between caricature and stereotype.
 
